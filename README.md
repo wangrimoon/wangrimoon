@@ -1,4 +1,4 @@
- ![umamusume-uma-musume](https://media1.tenor.com/m/VTpgwzBvkKYAAAAC/arknights-wang.gif)<img width="479" height="479" alt="PSV4Og5" src="https://media.discordapp.net/attachments/1366242316364546122/1471021478840635463/HA19gtBa8AAymN2.png?ex=698d6b02&is=698c1982&hm=4a6577fb09abd1f814305a4ecf625f44bfbbf4a45d687a9debe8f4cfe8e65a98&=&format=webp&quality=lossless" />
+<img width="479" height="479" alt="PSV4Og5" src="https://media.discordapp.net/attachments/1366242316364546122/1471021478840635463/HA19gtBa8AAymN2.png?ex=698d6b02&is=698c1982&hm=4a6577fb09abd1f814305a4ecf625f44bfbbf4a45d687a9debe8f4cfe8e65a98&=&format=webp&quality=lossless" />
 
 <!--
 **wangrimoon/wangrimoon** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
