@@ -1,5 +1,4 @@
-![umamusume-uma-musume](https://media1.tenor.com/m/VTpgwzBvkKYAAAAC/arknights-wang.gif) <img width="479" height="479" alt="PSV4Og5" src="https://github.com/user-attachments/assets/c494a165-0169-4281-a2dc-9e757c24abc8" />
-
+![umamusume-uma-musume](https://media1.tenor.com/m/VTpgwzBvkKYAAAAC/arknights-wang.gif)
 
 
 
